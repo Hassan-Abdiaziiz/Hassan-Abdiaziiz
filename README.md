@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hassan-Abdiaziiz
+- 👀 I’m interested in Coding programs
+- 🌱 I’m currently learning Full stack
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me E-mail:-hassanabdiaziiz9@gmail.com
